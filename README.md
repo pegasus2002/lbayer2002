@@ -1,1 +1,1 @@
-![Screenshot_54-transformed](https://github.com/lbayer10/lbayer10/assets/103097039/1df88ce9-5bda-4ad1-83a3-db09548a09de)
+![github-header-image](https://github.com/lbayer10/lbayer10/assets/103097039/949f8efe-8f34-458f-b49f-2d07fa1df7c7)
