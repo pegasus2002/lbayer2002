@@ -1,1 +1,1 @@
-![whatsapp-chatbot-csharp](https://github.com/lbayer10/lbayer10/assets/103097039/be635c63-8ea5-47d1-bda3-4f5185a1e6fd)
+![github-header-image](https://github.com/lbayer10/lbayer10/assets/103097039/860d83db-96ed-4cf2-aa74-452908d7ba25)
